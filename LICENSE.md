@@ -1,4 +1,4 @@
-# 
+# Gratuito TreeSize scripts para Mac OS | Principal TreeSize scripts para PC Windows. Con historial de versiones y registro de transacciones — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
